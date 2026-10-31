@@ -1,0 +1,1 @@
+# cor-bugada-script
